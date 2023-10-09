@@ -1,1 +1,1 @@
-# .com
+#http:/apply-for-copyright-case.com
